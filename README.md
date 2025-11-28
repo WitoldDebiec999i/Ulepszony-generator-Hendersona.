@@ -1,0 +1,1 @@
+# Ulepszony-generator-Hendersona.
